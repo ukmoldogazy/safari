@@ -1,1 +1,1 @@
-# [safari](https://moldogazy.github.io/safari/)
+# [safari](https://ukmoldogazy.github.io/safari/)
